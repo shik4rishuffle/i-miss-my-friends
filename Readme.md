@@ -34,8 +34,7 @@ If you want to hear these things I am happy to share them with you but I do not 
 
 I fucking hate my family fighting and all 4 of you are at fault. There should not be this much arguing over it tho. It’s gone on looooong enuf.
 
->In the immortal words of Carl Duckworth:
->I love you fam and I pray for you,
->God bless you
+>In the immortal words of Carl Duckworth:  
+>I love you fam and I pray for you,  
+>God bless you  
 >Shalom
-
