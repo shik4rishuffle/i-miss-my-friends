@@ -28,7 +28,7 @@ I have a lot more to say, but that would mean I am getting involved.
 
 I’m 80% sure that what I have to say will fix you and miles, and 100% sure it contains things you don’t want to hear but of course if you wanna hear it, let me know and i'll be happy to send it over.
 
-As for Emily and lissy that’s a little out of my depth as I dont know them well enough but I do have a little to say on the subject.
+As for Emily and lissy that’s a little out of my depth as I dont know them well enough but I still have a little to say on the subject.
 
 If you want to hear these things I am happy to share them with you but I do not want you to consider me as getting involved and I definitely dont want any reprocussions to myself for it. Everything I have done and said is out of peace and love.
 
