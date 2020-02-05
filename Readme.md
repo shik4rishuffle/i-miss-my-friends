@@ -26,7 +26,7 @@ If this is the case you should all draw a line in the sand and become friends ag
 
 I have a lot more to say, but that would mean I am getting involved.
 
-I’m 80% sure that what I have to say will fix you and miles, and 100% sure it contains things you don’t want to hear.
+I’m 80% sure that what I have to say will fix you and miles, and 100% sure it contains things you don’t want to hear but of course if you wanna hear it, let me know and i'll be happy to send it over.
 
 As for Emily and lissy that’s a little out of my depth as I dont know them well enough but I do have a little to say on the subject.
 
